@@ -2,7 +2,7 @@
 
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=shufflewzc)](https://github.com/anuraghazra/github-readme-stats)
 
-## 更新日志
+## 更新日志啊啊啊啊😫w(ﾟДﾟ)w
 
 ```
 6月5日
